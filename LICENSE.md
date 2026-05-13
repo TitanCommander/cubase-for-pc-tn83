@@ -1,4 +1,4 @@
-# 
+# Enhance Cubase for PC | Cubase for Windows with professional Cubase for PC | Cubase for Windows Automation | project-templates + loop-library, the #1 automation. Includes
 
 
 
